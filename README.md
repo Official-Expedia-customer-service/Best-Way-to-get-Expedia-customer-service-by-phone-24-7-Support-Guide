@@ -1,6 +1,6 @@
 # Best-Way-to-get-Expedia-customer-service-by-phone-24-7-Support-Guide
 To Quick Reach Expedia™ Call +1-888-556-8068/1-888-EXPEDIA™(556-8068)customer service phone number.For Quick assistance with flight bookings, changes,&amp; refunds(Expedia™) 
-To reach to a live person at Expedia Customer Service for 24 hour support, call their 24/7 Expedia 800 customer service 1~877~590~0011 Phone number hotline 1-877-590-0011 or 1-800-EXPEDIA (1-877-590-0011). You can also use the live chat feature on their website or reach out to them via email.
+To reach to a live person at Expedia Customer Service for 24 hour support, call their 24/7 Expedia 800 customer service 1-877-590-0011 Phone number hotline 1-877-590-0011 or 1-800-EXPEDIA (1-877-590-0011). You can also use the live chat feature on their website or reach out to them via email.
 
 1. Calling Expedia’s Customer Service Hotline The most straightforward way to talk to a live person is by calling their customer service hotline. Expedia’s main customer service number is 1-800-EXPEDIA (1-877-590-0011) or (1-877-590-0011) OTA (Live Person). When you call, you’ll be prompted to select options that direct you to the appropriate department, but be patient—there is always a way to reach a live person.
 
